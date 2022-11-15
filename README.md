@@ -1,1 +1,0 @@
-# lycug.github.io
